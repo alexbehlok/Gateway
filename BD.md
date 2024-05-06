@@ -1,0 +1,71 @@
+# Topics
+------
+- UAP/NHIs 
+	- Guides
+- Community building 
+	- MBT Community Outreach Volunteering
+	- Destigmatization / Broadening of Audience
+- Geometry / crystal augmentation
+- Remote Viewing
+- Electromagnetic coils for inducive entrainment
+- Hemi-sync, in general
+- 
+- Energy healing, in general
+- Past Lives
+- Extra-Occular Vision  + Blindness Compensation
+- Colors / Personal Auras
+# Questions  
+---
+- Thoughts on ASMR phenomenon and potential relation/application to hemi-sync / entrainment
+- Can you introduce me to Ralph, or some other NHI or being of interest
+- Setting up mass-gathering psychic gestalt events for community building, experience of greatly enhanced group  energy
+	- Go in with a clear intention / desired outcome for the group to focus on
+	- See what happens
+- Electromagnetic connection to "psychic energy"
+- Personal vibrational rate 
+- Change in music perception
+- Geomagnetic effects on mood/health
+- What is known, generally, about crystals, from your perspective (absolutely no background knowledge on this one)
+	- Quartz for general energy??
+	- Amethyst??
+- What is the significance of particular geometries IE the 4 sided pyramid (rather than a tetrahedron?)
+- What would be an effective energetic approach to treatment for Crohns? Recommendations? DEC?
+- Are there more people in the area other than me who are familiar with this?
+- What are your thoughts on Tom Campbell / MBT 
+	- I am signed up for their community volunteer program
+- Thoughts on the many facets of the UAP/NHI phenomenon/
+- Thoughts on potentially giving talks / community events periodically either online or in-person
+- Is there a particular strategy you would recommend to get more people engaged?
+	- Most attempts thusfar have proven futile
+- What technical insights into hemi-sync can you share with me?
+- Someone joined the group very early on, "Laura". Instant feeling of recognition and affinity for no obvious reason. Almost certainly haven't actually met this person before. They just returned from TMI. Been MIA 2 months
+- What is considered the "frontier", at this point? Does it even make sense to ask such a question?
+- 
+- Reduced need for sleep
+- Thoughts on parental health situation
+- Weirdly improved hand-eye coordination - especially when catching things I've almost dropped
+## M Questions
+----
+- Why is there an anxiety over which language to use (bilingual (fillipino??))
+- UAP / NHI
+- Best way to get started?
+## People
+---
+- Tammy Haynes / TPD?
+- Richard Dolan?
+	- Local UFO Researcher 
+- Relevant people at UofR medicine / neuroscience?
+	- EEG/GSR/Other potential scientific testing. 
+	- 
+- Tom Campbell / MBT 
+	- Thoughts? 
+	- How does your view on reality compare to "MBT ", broadly speaking
+	- 
+- Bob Monroe 
+	- Did you know him personally?
+	- Reminds me of myself
+	- Engineering type 
+	- Reading his books was profound and deeply satisfying due to relatability, especially during his early days 
+	- 
+
+- 
